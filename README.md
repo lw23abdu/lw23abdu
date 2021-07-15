@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lw23abdu
+- 👀 I’m interested in creating apps/games/software..etc
+- 🌱 I’m currently learning python
+- 📫 How to reach me ( maybe later)
